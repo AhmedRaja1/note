@@ -50,6 +50,7 @@ Etc.
 Almost all are added.
 
 ============================================================
+
 3- Our Direct Seniors Class of 2021
 
 Syed Shah Waleed & Company
@@ -64,6 +65,7 @@ Qanit, Zahid & Inzimam.
 Add them anyone 👍
 
 =========================================================
+
 4- Class of 2022
 We 😀,  the longest serving cabinet ❤✨
 And the Extreme Strugglers - Revivers I would rather say. 😊
@@ -80,6 +82,7 @@ Usama Asif
 Etc.
 
 ====================================================
+
 5- Class of 2023
 The Legacy Continuers
 
@@ -98,6 +101,7 @@ Etc.
 Almost all are added.
 
 ==================================================================
+
 6- Class of 2024
 The Running Cabinet
 
@@ -108,13 +112,16 @@ Ebtihaj Abdullah
 Even we have among us class of 2025 & 2026 in our current core team👍
 
 ============================================================
+
 Respecting everyone's cyberspace, I assure you there'll be no rubbish spams.
 
 As I truly understand that almost all of you're into your hectic lives.
 
+
 So, just starting an introduction thread for getting the current status updates of everyone so, that we know our which brother can help us where.
 
 =============================================================
+
 ### Intro Message Template
 Name:
 UET Stream: 
